@@ -1,1 +1,1 @@
-![](https://github.com/devSchacht/Eat-the-World/blob/master/PART-I/Explanation-1.png)
+![](https://github.com/devSchacht/Eat-the-World/blob/master/PART-I/Explanation-1/Explanation-1.png)
