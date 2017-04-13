@@ -1,0 +1,1 @@
+![](https://github.com/devSchacht/Eat-the-World/blob/master/PART-I/Explanation-2/Explanation-3.png)
